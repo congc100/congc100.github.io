@@ -12,7 +12,7 @@ My hobby is singing, and my main favorite is Chinese pop songs from the 2000s to
 
 ## Find me on
 
-[LinkedIn](https://www.linkedin.com/in/tianxiang-wang-805a98241/), [GitHub](https://github.com/congc100)
+[LinkedIn](https://www.linkedin.com/in/tianxiang-wang-805a98241/), [GitHub](https://github.com/congc100), [My CV on Overleaf](https://www.overleaf.com/read/kywkydyshfdv#c7367e)
 
 ## Contact
 
